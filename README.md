@@ -220,4 +220,4 @@ Apex Legends is available as a full free version for Windows with all features a
 Don't miss out on the action—**download Apex Legends now and join the battle!**
 
 ---
-**Last updated:** 2026-10-16 06:57:50 UTC
+**Last updated:** 2026-10-16 12:16:40 UTC
